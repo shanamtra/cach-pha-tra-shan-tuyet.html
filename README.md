@@ -2,7 +2,7 @@
 <h2><a href="https://shanamtra.tumblr.com/post/178565075179/pha-tr%C3%A0-shan-tuy%E1%BA%BFt-%C4%91%C3%BAng-c%C3%A1ch-b%E1%BA%A1n-%C4%91%C3%A3-s%E1%BA%B5n-s%C3%A0ng">Pha trà Shan Tuyết đúng cách | Bạn đã sẵn sàng chưa</a></h2>
 
 <div class="body-text">
-<p>Trà - Hương vị tuyệt hảo! Đó là khi ta đã có một tách trà để thưởng thức nhưng muốn có tách trà đó thì phải pha thế nào?&nbsp;Quả thực là&nbsp;Pha tra Shan Tuyết sao cho đúng cách đã khó, giữ được hương vị, sự tinh túy của trà lại càng khó. Cùng Shanam tìm hiểu qua bài biết dưới đây. Đừng bỏ lỡ nếu bạn muốn có một tách <a href="https://shanamtra.tumblr.com/post/178565075179/pha-tr%C3%A0-shan-tuy%E1%BA%BFt-%C4%91%C3%BAng-c%C3%A1ch-b%E1%BA%A1n-%C4%91%C3%A3-s%E1%BA%B5n-s%C3%A0ng"><strong>trà shan tuyết ngon</strong></a> thật ngon tại bài viết hướng dẫn này nhé.</p>
+<p>Trà - Hương vị tuyệt hảo! Đó là khi ta đã có một tách trà để thưởng thức nhưng muốn có tách trà đó thì phải pha thế nào?&nbsp;Quả thực là&nbsp;Pha tra Shan Tuyết sao cho đúng cách đã khó, giữ được hương vị, sự tinh túy của trà lại càng khó. Cùng Shanam tìm hiểu qua bài biết dưới đây. Đừng bỏ lỡ nếu bạn muốn có một tách <a href="https://github.com/shanamtra/cach-pha-tra-shan-tuyet.html/"><strong>trà shan tuyết ngon</strong></a> thật ngon tại bài viết hướng dẫn này nhé.</p>
 
 <h2>Cách pha trà Shan Tuyết thơm ngon như thế nào ?</h2>
 
